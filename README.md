@@ -1,5 +1,7 @@
-# hello-world
+Hello-World
+
 glowing-adventure
-I am Amazing here are I am doing what in my culture is consider unknow 
-glad eggs are not green 
-wonderful to know there are still humand godess and gods
+Hello-World, my name is Kerry. I am going to start at this point in my life because "We become what we think about all day long" Emerson
+I am rejoicing this is very exciting time in my life and the reason behind me announcing my glowing-adventure
+glad eggs are not 
+wonderful to know there are still humans godess and gods
